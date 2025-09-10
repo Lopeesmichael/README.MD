@@ -42,8 +42,8 @@
 ---
 
 ## 📫 Contato
-- ✉️ Email: **seuemail@email.com**  
-- 💼 LinkedIn: [linkedin.com/in/seu-perfil](#)  
+- ✉️ Email: Lopeesmichael@gmail.com 
+- 💼 LinkedIn:Michael teixeira lopes  
 
 ---
 
