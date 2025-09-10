@@ -43,7 +43,8 @@
 
 ## 📫 Contato
 - ✉️ Email: Lopeesmichael@gmail.com 
-- 💼 LinkedIn:Michael teixeira lopes  
+- 💼 LinkedIn:https://www.linkedin.com/in/michael-teixeira-lopes-26154a383
+
 
 ---
 
